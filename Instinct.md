@@ -1,4 +1,5 @@
 ## Chapter I
+Willpower is actually three powers: will, won't and want.
 ### Under the microscope
 ##### What is the harder thing?
 Imagine yourself facing your willpower challenge and doing the harder thing. What makes it hard?
